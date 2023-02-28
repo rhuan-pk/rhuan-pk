@@ -1,1 +1,1 @@
-## My main username now is [rhuanpk](https://github.com/rhuanpk).
+## My main username is [rhuanpk](https://github.com/rhuanpk).
